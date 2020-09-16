@@ -1,4 +1,4 @@
-Rayze Consulting
+Rayze Tech
 Dhruv Batra
 Ryan T
 
